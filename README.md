@@ -3,8 +3,7 @@
     <p align="center">
 C+H /Whisp encourage!!
 
-<img width="1100" height="650" alt="Untitled512_20260109213325" src="https://github.com/user-attachments/assets/430dfb10-6a2b-46da-a5d2-8d5a8b82bafb" />
-
+<img width="1200" height="894" alt="Untitled520_20260113122333" src="https://github.com/user-attachments/assets/678e175c-7ae7-4a1c-bc93-fc34d1202aaf" />
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
