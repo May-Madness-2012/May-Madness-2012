@@ -19,4 +19,4 @@ C+H /Whisp encourage!!
 .
 
 <p align="center">
-  <a href="https://https://applescomm.straw.page/">Commision Info</a>
+  <a href="https://applescomm.straw.page/">Commision Info</a>
